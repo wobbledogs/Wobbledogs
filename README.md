@@ -10,23 +10,7 @@ ts is soo cute
          *not my art*
 
 
-         
-      THIS>>>>>>
-
-
-
-          
-
-
-<img width="1012" height="1001" alt="1000000190" src="https://github.com/user-attachments/assets/df82727e-3053-4e59-a2f2-6aacdfbea637" />
-
-
-
-
-
-
-
-*also not my art*
+        
 
     
     
