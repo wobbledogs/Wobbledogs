@@ -15,11 +15,22 @@ ts is soo cute
 
 
 
-          <img width="1012" height="1001" alt="1000000190" src="https://github.com/user-attachments/assets/9fae6ef1-6ba1-4388-84ff-fb7b8571a70e" />
+          
+
+
+<img width="1012" height="1001" alt="1000000190" src="https://github.com/user-attachments/assets/df82727e-3053-4e59-a2f2-6aacdfbea637" />
+
+
+
+
+
 
 
 *also not my art*
 
-
-
-ITS SO CUTE IM DYINGGGGKkllLosos
+    
+    
+    
+    
+    
+    ITS SO CUTE IM DYINGGGGKkllLosos
