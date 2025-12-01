@@ -2,6 +2,6 @@
 CUTIES !!!!
 
 
+<img width="729" height="530" alt="1000000372" src="https://github.com/user-attachments/assets/f704aebc-3721-4044-aa3e-cca9a70e1aef" />
 
-![1000000258](https://github.com/user-attachments/assets/46db895a-6f3a-45fe-acff-6ed35c3272dd)
 
