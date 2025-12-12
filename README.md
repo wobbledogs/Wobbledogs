@@ -1,8 +1,3 @@
 
-me and my stupid dumb friend hanging out ♡
 
-
-<img width="494" height="358" alt="1000000395" src="https://github.com/user-attachments/assets/effc02cc-0952-4481-aadd-2f51e9dfc061" />
-
-
-
+     https://i.pinimg.com/originals/14/7c/21/147c21a49c814b42235e3a7e245ee9d4.gif
